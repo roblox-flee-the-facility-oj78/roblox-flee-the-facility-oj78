@@ -1,4 +1,4 @@
-
+rare roblox blue lock rivals Scripts is the best roblox blue lock rivals Script, featuring auto-heal and invisibility. Safe and powerful for all your
 
 
 ---
